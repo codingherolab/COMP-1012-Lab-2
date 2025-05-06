@@ -1,6 +1,6 @@
 # COMP-1012-Lab-2
 
-Download Here:[COMP 1012: Lab 2]([URL](https://codingherolab.com/product/comp-1012-lab-2/))
+Download Here:[COMP 1012: Lab 2](https://codingherolab.com/product/comp-1012-lab-2/)
 
 For Custom/Original Work email codingprolab@gmail.com/whatsapp +1(541)423-7793
 
